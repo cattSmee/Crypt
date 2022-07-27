@@ -1,0 +1,1 @@
+a szöveg amiről szó van?!
